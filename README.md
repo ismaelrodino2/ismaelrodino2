@@ -1,6 +1,6 @@
 Hi there 👋 I'm Ismael Rodino, a Brazilian who is passionate about building high-impact, well-performing user experiences.
 
-🔭 I'm currently a freelancer for for Norway.
+🔭 I'm currently a freelancer for Norway.
 
 🚀 Entrepreneur and Developer, building my own company.
 
